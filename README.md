@@ -18,7 +18,8 @@ ________________________________________________________________________________
 -  no need too ask permission too C+H
 -  sometimes i un-AFK and chat in PT
 -  i dont roleplay
--  i will still C+H even if i dislike the ship (ex:fruitcake) BUT NOT SHIPS WITH TOODLES AND PEBBLE EW EW EW🤮
+-  i will still C+H even if i dislike the ship (ex:fruitcake) BUT NOT SHIPS WITH TOODLES, COAL, AND PEBBLE EW EW EW🤮
+- if youre cosplaying toodles/coal/pebble and youre C+H with me, do NOT click that blush button or im moving and hiding you
 <!---
 labidut/labidut is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
