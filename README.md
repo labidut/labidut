@@ -4,6 +4,7 @@
 -  if you're nice then i'll also be nice^^
 -  Pronouns: she/her, they/them, i prefer she/her
 -  Fun fact: im the fun thing! heh.
+- all-most of my socials are linked too my strawpage !!
 
 - i got lazy making this
 - my discords "labidut"
