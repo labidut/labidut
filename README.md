@@ -1,4 +1,4 @@
-~  *a little info about me!*
+~  *about me!*
 -  My names labidut // @labidut
 -  I’m interested in alot of things
 -  I’m currently learning how to code
