@@ -21,6 +21,7 @@ ________________________________________________________________________________
 -  sometimes i un-AFK and chat in PT
 -  i dont roleplay
 -  appreciate gifts on PT
+-  i try too make all of my cosplays to look as canon as possible while making them look good
 -  if im AFK you can whisper too int with me
 -  feel free to int! aslong as you dont fit basic DNI or youre not toxic i would be more than happy too int!
 -  i will still C+H even if i dislike the ship (ex:fruitcake) BUT NOT SHIPS WITH TOODLES, COAL, AND PEBBLE EW EW EW🤮
