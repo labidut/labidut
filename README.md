@@ -12,6 +12,7 @@
 -  i got lazy making this
 -  my discords "labidut"
 -  i use the same name and profile picture for all my socials
+-  i send messages and/or drawings too random peoples strawpages for fun
 -  more info on old strawpage! ( linked in new strawpage )
 
 ~  *pony town*
