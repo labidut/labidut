@@ -41,6 +41,11 @@ ________________________________________________________________________________
 -  dandys world
 -  ILA ( i love amy comic )
 -  Squidgame
+
+> *Bonus!*
+_____________________________________________________________________________________
+-  i dont accept vc's if you dont ask first
+-  check out my other repository for my DNI'S, INT'S, And some bonus stuff about me!!
 <!---
 labidut/labidut is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
